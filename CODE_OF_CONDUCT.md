@@ -1,0 +1,1 @@
+We expect participants to be respectful and constructive. Harassment will not be tolerated.
